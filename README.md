@@ -1,6 +1,6 @@
 # CyberGuard机场官网地址
 
-最新地址：[cyberguard.best](https://cyberguard.best/#/register?code=6BPG7WPj)
+最新地址：[cyberguard.best](https://www.cyberguard.best/#/register?code=Fe36atsl)
 
 ## CyberGuard机场介绍
 
